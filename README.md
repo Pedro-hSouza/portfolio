@@ -1,2 +1,2 @@
 # Portfolio
-I will save all my projects here, hope you like it! 😁
+Here, you can save all your projects, and customize the design! 
